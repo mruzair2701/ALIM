@@ -4,4 +4,8 @@
 
 2. SIFAT WAJIB BAGI ALLAH ADA 20...
 
-a) Qidam itu sedia. Lawannya itu haduth itu 
+a) Qidam itu sedia. Lawannya itu haduth itu baharu
+
+b) Baqa' itu kekal. Lawannya fana'itu binasa.
+
+c) Mukhalafatu lilhawadith itu berlainan Allah dengan segala yang baharu
