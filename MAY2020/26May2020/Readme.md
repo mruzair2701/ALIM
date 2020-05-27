@@ -9,3 +9,6 @@ a) Qidam itu sedia. Lawannya itu haduth itu baharu
 b) Baqa' itu kekal. Lawannya fana'itu binasa.
 
 c) Mukhalafatu lilhawadith itu berlainan Allah dengan segala yang baharu
+   Lawannya itu mumathalatuhu lilhawadith itu bersamaan Allah dengan segala yang baharu.
+
+d) Qiamuhu binafsih itu 
