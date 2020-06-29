@@ -3,4 +3,4 @@
 
   2.Surah Al-Infitar Dan Maknanya (https://youtu.be/zo0-T-vNEQA)
 
-  3.Hukum Dan Pembahagiannya (
+  3.Hukum Dan Pembahagiannya (https://youtu.be/KsX5W3VFzY8)
