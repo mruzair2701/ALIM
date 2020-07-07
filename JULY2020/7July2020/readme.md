@@ -1,5 +1,5 @@
 
-   1. Surah At-Tariq Dan Maknanya (https://youtu.be/zuRYsnNRuyY)
+   1.Surah At-Tariq Dan Maknanya (https://youtu.be/zuRYsnNRuyY)
 
 
-   2. Zat Dan Sifat (https://youtu.be/HBVURfN3nMs)
+   2.Zat Dan Sifat (https://youtu.be/HBVURfN3nMs)
